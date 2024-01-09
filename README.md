@@ -1,0 +1,6 @@
+![q-5](https://github.com/Disha-vaghasiya/p-exam/assets/149076733/177c0020-ba86-4083-8851-722a01a99e77)
+![q-4](https://github.com/Disha-vaghasiya/p-exam/assets/149076733/77422786-2a5b-4ae5-97b1-8d898e2aba02)
+![q-3](https://github.com/Disha-vaghasiya/p-exam/assets/149076733/d056ae79-0a45-4b0d-b855-784b617c934f)
+![q-2](https://github.com/Disha-vaghasiya/p-exam/assets/149076733/ec867fb5-70db-4494-9208-0af73b466a68)
+![q-1](https://github.com/Disha-vaghasiya/p-exam/assets/149076733/6d7031ac-31b4-4191-9729-69db5ebc51e0)
+![q-7](https://github.com/Disha-vaghasiya/p-exam/assets/149076733/e90039bb-aa04-4dd6-845d-af8192c660d1)
